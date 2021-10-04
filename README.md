@@ -1,2 +1,2 @@
 # InnocentBoyMilk
-glorious boys repository on GitHub
+Why the hell zenbu eigo nano?
